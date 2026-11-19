@@ -1,1 +1,0 @@
-# Bhartiya-Jan-Seva-Application
